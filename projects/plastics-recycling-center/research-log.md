@@ -28,7 +28,7 @@ I found that the U.S. made about 35.7 million tons of plastic waste in 2018, but
 This matters because our recycling center should not try to recycle every type of plastic. We should find plastic that our school has a lot of and that we can sort and recycle correctly.
 
 **Source:**  
-[Plastic waste and U.S. recycling statistics]([https://www.epa.gov/facts-and-figures-about-materials-waste-and-recycling/national-overview-facts-and-figures-materials])
+[Plastic waste and U.S. recycling statistics] ([https://www.epa.gov/facts-and-figures-about-materials-waste-and-recycling/national-overview-facts-and-figures-materials])
 
 #### Finding 2: [Recycling Basics and Benefits]
 
@@ -41,7 +41,7 @@ This matters because our recycling center should not try to recycle every type o
 This matters because our recycling center could help reduce some of the plastic waste from our school. If we can turn waste plastic into something useful, we can reuse that material instead of throwing it away.
 
 **Source:**  
-[Recycling Basics and Benefits]([https://www.epa.gov/recycle/recycling-basics-and-benefits])
+[Recycling Basics and Benefits] ([https://www.epa.gov/recycle/recycling-basics-and-benefits])
 
 #### Finding 3: [Why aren’t we recycling more plastic?]
 
