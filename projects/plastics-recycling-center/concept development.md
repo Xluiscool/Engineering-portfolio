@@ -60,3 +60,31 @@ The plastic shredder breaks plastic into small pieces. This make the plastic eas
 - Turn it off and unplug it before removing stuck plastic.
 - Know where the emergency stop button is.
 - Keep people away while the shredder is running.
+
+# Collection, Sorting, and Storage
+## Plastic Collection
+### What It Does
+The collection process gets usable plastic from around the school and brings it to our team so it can be sorted, cleaned, stored, and later shredded.
+
+Our main collection areas are:
+- The lunchroom
+- Plastic saved by teachers
+- We are not collecting plastic from homes or businesses.
+
+# Teacher Collection
+We will ask teachers to save plastic from school instead of throwing it away.
+
+Teachers can keep a small labeled container in their classroom.
+
+# PLASTIC COLLECTION
+## Put In:
+- Empty plastic bottles
+- Empty plastic cups
+
+## Do Not Put In:
+- Food
+- Liquid
+- Paper
+- Metal
+- Glass
+- Regular trash
